@@ -21,7 +21,7 @@ I enjoy exploring new technologies and solving engaging challenges, with a parti
 
 ## 📫 How to Contact Me:
 - 📧 Email: [akihiro.furukaya@icloud.com](mailto:akihiro.furukaya@icloud.com)  
-- 💼 LinkedIn: [Valery Kulikov](https://www.linkedin.com/in/valery-kulikov-246924290/)  
+- 💼 LinkedIn: [Valery Kulikov](www.linkedin.com/in/akihirof)  
 
 ---
 
